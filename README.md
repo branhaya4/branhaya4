@@ -9,7 +9,7 @@ If you're here reading this, welcome to my profile.
 
 
 ## Featured Works and Repos
-This place is currently empty...setting up for 2022, and working on something big!
+This place is currently empty...
 
 ## Links
 
