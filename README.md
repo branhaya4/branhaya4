@@ -4,7 +4,6 @@ I'm Brandon, or also known here as [@branhaya4](https://github.com/branhaya4). I
 
 If you're here reading this, welcome to my profile. 
 
-> I'm new to Github, and I'm getting my profile set up for the new year. ~2021
 
 
 
